@@ -1,1 +1,1 @@
-![tha'ts me!](https://imgur.com/C7OYxy4)
+![](https://imgur.com/C7OYxy4)
